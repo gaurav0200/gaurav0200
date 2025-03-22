@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Your Name]  
+# 👋 Hi, I'm Gaurav rao dora  
 
 🎯 **Aspiring Data Analyst | Business Analytics Enthusiast**  
 
